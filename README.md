@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @marcinekubebeku
 - 👀 I’m interested in twoja stara
-- 🌱 I’m currently learning twoja stara
+- 🌱 I’m currently learning twoja starą
 - 💞️ I’m looking to collaborate on twoja stara
 - 📫 How to reach me twoja stara
 
