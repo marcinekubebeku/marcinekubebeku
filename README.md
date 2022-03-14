@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @marcinekubebeku
 - 👀 I’m interested in twoja stara
 - 🌱 I’m currently learning o twojej starej
-- 💞️ I’m looking to collaborate on twoja stara
+- 💞️ I’m looking to collaborate on twoja starą
 - 📫 How to reach me twoja stara
 
 
